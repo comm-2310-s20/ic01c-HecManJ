@@ -12,4 +12,8 @@
 
 1. My favorite YouTube channel is *OneyPlays*
 
+1. My favorite videogame genre is *Action Adventure*
 
+1. My favorite videogame is *Super Mario Bros. 2*
+
+1. My favorite pokemon or videogame character is *Cubone*
